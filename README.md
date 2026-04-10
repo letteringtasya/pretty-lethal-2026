@@ -1,6 +1,6 @@
 # Pretty Lethal (2026)
 
-Pretty Lethal (2026) premiered at the SXSW Film & TV Festival on March 13, 2026 and is now streaming on Amazon Prime Video. Directed by Vicky Jewson and written by Kate Freund.
+[Pretty Lethal (2026)](https://bingevaults.com/article/ultimate-guide-pretty-lethal-2026-a-must-watch) premiered at the SXSW Film & TV Festival on March 13, 2026 and is now streaming on Amazon Prime Video. Directed by Vicky Jewson and written by Kate Freund.
 
 ![Pretty Lethal 2026 Poster](https://www.themoviedb.org/movie/1084187-pretty-lethal)
 
